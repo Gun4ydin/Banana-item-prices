@@ -1,7 +1,7 @@
 # 🎯 Banana Item Price List  
 ## 💰 TF2 Key Exchange Rates
 
-🔗 [Steam Trade Link](https://steamcommunity.com/tradeoffer/new/?partner=47251981&token=kAzOz5KJ)
+🔗 Trade Link → https://steamcommunity.com/tradeoffer/new/?partner=47251981&token=kAzOz5KJ
 
 ### 🎯 Selling Banana Game Items for TF2 Keys  
 📦 Stock: Over 10,000,000+ Banana items available  
@@ -58,4 +58,4 @@
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
 📌 Minimum trade: 1 TF2 Key  
-🔗 [Steam Trade Link](https://steamcommunity.com/tradeoffer/new/?partner=47251981&token=kAzOz5KJ)
+🔗 Trade Link → https://steamcommunity.com/tradeoffer/new/?partner=47251981&token=kAzOz5KJ
