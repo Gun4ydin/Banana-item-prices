@@ -31,12 +31,12 @@
 - Denimnana, Disintegrana, Egyptnana, Flagnana, Gelatinous Banana  
 - Gingerbreadnana, Goatnana, Hotdognana, Hexagonana, Icecreamnana  
 - Marshmallnana, Minotaurnana, Missingnana, Modernartnana, Mushroomnana  
-- Nukenana, Pharaonana, Poststampnana, Rifle Nana, Stickerbombanana  
+- Nukenana, Poststampnana, Rifle Nana, Stickerbombanana  
 - Wafflenana, Watermelonana, Wormnana
 
 🔸 **1x TF2 KEY = 10,000 Each:**  
 - 1M Jester Banana, 5M Knight Banana, Frankenana, Jack-o'-nana  
-- Mimicrynana, Plinknana, spacenana
+- Mimicrynana, Plinknana, spacenana, Pharaonana
 
 🔸 **1x TF2 KEY = 6,000 Each:**  
 - Banan-o'-sticks, Bananon Vorhez, Banunicorn, Bananywize, Batfamilynana  
