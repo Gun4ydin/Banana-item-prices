@@ -21,27 +21,27 @@
 - Knight'nana, Manynana, Mazenana, Meltnana, Mitosisnana  
 - Moainana, Moonnana, Musicnana, Noodlenana, Origaminana  
 - PNGnana, Pencilnana, Pinkglownana, Postnana, Primordialnana  
-- Radionana, Santanana, Scrapnana, Sharknana, Spitfirenana mk01  
+- Radionana, Santanana, Scrapnana, Spitfirenana mk01  
 - Sushinana, Swissnana, Voodoo Banana, Wintercamonana, Wizardnana  
 - Workinprogressnana, Wovenana
 
 🔸 **1x TF2 KEY = 15,000 Each:**  
-- Bananarita, Bananoading.., Barcodenana, Bearnana, Clownana  
-- Cloudnana, Cookienana, Craftynana, Croissana, Cyclopnana  
-- Denimnana, Disintegrana, Egyptnana, Flagnana, Gelatinous Banana  
-- Gingerbreadnana, Goatnana, Hotdognana, Hexagonana, Icecreamnana  
-- Marshmallnana, Minotaurnana, Missingnana, Modernartnana, Mushroomnana  
-- Nukenana, Poststampnana, Rifle Nana, Stickerbombanana  
+- Bananarita, Bananoading.., Barcodenana, Bearnana, Clownana
+- Cloudnana, Cookienana, Craftynana, Croissana, Cyclopnana
+- Denimnana, Disintegrana, Egyptnana, Flagnana, Gelatinous Banana
+- Gingerbreadnana, Goatnana, Hotdognana, Hexagonana, Icecreamnana
+- Marshmallnana, Minotaurnana, Missingnana, Modernartnana, Mushroomnana 
+- Nukenana, Poststampnana, Rifle Nana, Stickerbombanana, Sharknana
 - Wafflenana, Watermelonana, Wormnana
 
 🔸 **1x TF2 KEY = 10,000 Each:**  
 - 1M Jester Banana, 5M Knight Banana, Frankenana, Jack-o'-nana  
-- Mimicrynana, Plinknana, spacenana, Pharaonana
+- Mimicrynana, spacenana, Pharaonana
 
 🔸 **1x TF2 KEY = 6,000 Each:**  
 - Banan-o'-sticks, Bananon Vorhez, Banunicorn, Bananywize, Batfamilynana  
 - Blackdotnana, Cocktailnana, Firefighternana, Holonana, Mummynana  
-- Retronana, Robonana, Snowmanana, Spynana, Zombienana
+- Plinknana, Retronana, Robonana, Snowmanana, Spynana, Zombienana
 
 🔸 **1x TF2 KEY = 3,000 Each:**  
 - Alienana, Arknana, Aztecnana, Bananasnowman, Cripplenana  
@@ -53,7 +53,7 @@
 
 🔸 **1x TF2 KEY = 600 Each:**  
 - Christmascandynana, Golden Papercutnana, Happysnownana, Papercutnana  
-- Santabeltnana, Spartanana
+- Santabeltnana, Spartanana, sleepingnana
 
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
