@@ -8,7 +8,7 @@
 ✅ Only accepting TF2 Keys  
 📦 Current Selling Rates:
 
-🔸 **1x TF2 KEY = 150,000 Each:**  
+🔸 **1x TF2 KEY = 140,000 Each:**  
 - Banana
 
 🔸 **1x TF2 KEY = 30,000 Each:**  
@@ -53,7 +53,7 @@
 
 🔸 **1x TF2 KEY = 600 Each:**  
 - Christmascandynana, Golden Papercutnana, Happysnownana, Papercutnana  
-- Santabeltnana, Spartanana, sleepingnana
+- Santabeltnana, Spartanana, sleepingnana, zigzagnana
 
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
