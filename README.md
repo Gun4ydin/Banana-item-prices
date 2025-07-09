@@ -4,7 +4,7 @@
 🔗 Trade Link → https://steamcommunity.com/tradeoffer/new/?partner=47251981&token=kAzOz5KJ
 
 ### 🎯 Selling Banana Game Items for TF2 Keys  
-📦 Stock: Over 10,000,000+ Banana items available  
+📦 Stock: 10,000,000+ Banana items available  
 ✅ Only accepting TF2 Keys  
 📦 Current Selling Rates:
 
