@@ -56,6 +56,10 @@
 - Santabeltnana, Spartanana, sleepingnana, zigzagnana, Juicenana, Cerberusnana
 - Policenana, Camelnana
 
+🔸 **1x TF2 KEY = 300 Each:**  
+- Knitnana
+
+
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
 📌 Minimum trade: 1 TF2 Key  
