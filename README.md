@@ -40,13 +40,13 @@
 
 🔸 **1x TF2 KEY = 6,000 Each:**  
 - Banan-o'-sticks, Bananon Vorhez, Banunicorn, Bananywize, Batfamilynana  
-- Blackdotnana, Cocktailnana, Firefighternana, Holonana, Mummynana  
+- Blackdotnana, Cocktailnana, Firefighternana, Mummynana  
 - Plinknana, Retronana, Robonana, Snowmanana, Spynana, Zombienana
 
 🔸 **1x TF2 KEY = 3,000 Each:**  
 - Alienana, Arknana, Aztecnana, Bananasnowman, Cripplenana  
 - Furnana, Gamenana, Happy Halloweenana, Ornamentnana, Pandanana  
-- Tutankhana, Warningnana
+- Tutankhana, Warningnana, Holonana
 
 🔸 **1x TF2 KEY = 1,500 Each:**  
 - Christmaslightnana, Dream Banana, Expressionana, Milkywaynana, Vineyardnana
