@@ -23,7 +23,7 @@
 - PNGnana, Pencilnana, Pinkglownana, Postnana, Primordialnana  
 - Radionana, Santanana, Scrapnana, Spitfirenana mk01  
 - Sushinana, Swissnana, Voodoo Banana, Wintercamonana, Wizardnana  
-- Workinprogressnana, Wovenana
+- Workinprogressnana, Wovenana, Sharknana
 
 🔸 **1x TF2 KEY = 10,000 Each:**  
 - Bananarita, Bananoading.., Barcodenana, Bearnana, Clownana
@@ -31,7 +31,7 @@
 - Denimnana, Disintegrana, Egyptnana, Flagnana, Gelatinous Banana
 - Gingerbreadnana, Goatnana, Hotdognana, Wormnana, Wafflenana
 - Marshmallnana, Minotaurnana, Missingnana, Modernartnana
-- Nukenana, Poststampnana, Rifle Nana, Sharknana
+- Nukenana, Poststampnana, Rifle Nana
 - Watermelonana, Mushroomnana
 
 🔸 **1x TF2 KEY = 6,000 Each:**  
