@@ -20,40 +20,38 @@
 - Giftnana, Heartratenana, Incognana, Infernana, Invertednana  
 - Knight'nana, Manynana, Mazenana, Meltnana, Mitosisnana  
 - Moainana, Moonnana, Musicnana, Noodlenana, Origaminana  
-- PNGnana, Pencilnana, Pinkglownana, Postnana, Primordialnana  
-- Radionana, Santanana, Scrapnana, Spitfirenana mk01  
+- Pencilnana, Pinkglownana, PNGnana, Postnana, Primordialnana  
+- Radionana, Santanana, Scrapnana, Sharknana, Spitfirenana mk01  
 - Sushinana, Swissnana, Voodoo Banana, Wintercamonana, Wizardnana  
-- Workinprogressnana, Wovenana, Sharknana
+- Workinprogressnana, Wovenana
 
 🔸 **1x TF2 KEY = 10,000 Each:**  
-- Bananarita, Bananoading.., Barcodenana, Bearnana, Clownana
-- Cloudnana, Cookienana, Craftynana, Croissana, Cyclopnana
-- Denimnana, Disintegrana, Egyptnana, Flagnana, Gelatinous Banana
-- Gingerbreadnana, Goatnana, Hotdognana, Wormnana, Wafflenana
-- Marshmallnana, Minotaurnana, Missingnana, Modernartnana
-- Nukenana, Poststampnana, Rifle Nana
-- Watermelonana, Mushroomnana
+- Bananarita, Bananoading.., Barcodenana, Bearnana, Clownana  
+- Cloudnana, Cookienana, Craftynana, Croissana, Cyclopnana  
+- Denimnana, Disintegrana, Egyptnana, Flagnana, Gelatinous Banana  
+- Gingerbreadnana, Goatnana, Hotdognana, Marshmallnana, Minotaurnana  
+- Missingnana, Modernartnana, Mushroomnana, Nukenana, Poststampnana  
+- Rifle Nana, Stickerbombanana, Wafflenana, Watermelonana, Wormnana
 
 🔸 **1x TF2 KEY = 6,000 Each:**  
-- Banan-o'-sticks, Bananon Vorhez, Banunicorn, Bananywize, Batfamilynana  
-- Blackdotnana, Cocktailnana, Firefighternana, Mummynana  
-- Plinknana, Retronana, Robonana, Snowmanana, Spynana, Zombienana
-- 1M Jester Banana, 5M Knight Banana, Frankenana, Jack-o'-nana  
-- Mimicrynana, spacenana, Pharaonana, Hexagonana, Icecreamnana
-- Stickerbombanana
+- 1M Jester Banana, 5M Knight Banana, Banan-o'-sticks, Bananon Vorhez, Banunicorn  
+- Bananywize, Batfamilynana, Blackdotnana, Cocktailnana, Firefighternana  
+- Frankenana, Hexagonana, Icecreamnana, Jack-o'-nana, Mimicrynana  
+- Mummynana, Pharaonana, Plinknana, Retronana, Robonana  
+- Snowmanana, Spacenana, Spynana, Zombienana
 
 🔸 **1x TF2 KEY = 3,000 Each:**  
 - Alienana, Arknana, Aztecnana, Bananasnowman, Cripplenana  
-- Furnana, Gamenana, Happy Halloweenana, Ornamentnana, Pandanana  
-- Tutankhana, Warningnana, Holonana
+- Furnana, Gamenana, Happy Halloweenana, Holonana, Ornamentnana  
+- Pandanana, Tutankhana, Warningnana
 
 🔸 **1x TF2 KEY = 1,500 Each:**  
 - Christmaslightnana, Dream Banana, Expressionana, Milkywaynana, Vineyardnana
 
 🔸 **1x TF2 KEY = 600 Each:**  
-- Christmascandynana, Golden Papercutnana, Happysnownana, Papercutnana  
-- Santabeltnana, Spartanana, sleepingnana, zigzagnana, Juicenana, Cerberusnana
-- Policenana, Camelnana
+- Camelnana, Cerberusnana, Christmascandynana, Golden Papercutnana  
+- Happysnownana, Juicenana, Papercutnana, Policenana  
+- Santabeltnana, Spartanana, sleepingnana, zigzagnana
 
 🔸 **1x TF2 KEY = 300 Each:**  
 - Knitnana
