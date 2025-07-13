@@ -60,6 +60,9 @@
 🔸 **1x TF2 KEY = 200 Each:**  
 - Circusnana
 
+🔸 **1x TF2 KEY = 60 Each:**  
+- New Year 2025 Banana
+
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
 📌 Minimum trade: 1 TF2 Key  
