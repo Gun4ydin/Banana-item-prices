@@ -41,13 +41,13 @@
 - Snowmanana, Spacenana, Spynana, Zombienana
 
 🔸 **1x TF2 KEY = 3,000 Each:**  
-- Alienana, Arknana, Aztecnana, Cripplenana  
-- Happy Halloweenana, Holonana, Ornamentnana  
-- Pandanana, Tutankhana, Warningnana
+- Alienana, Holonana, Ornamentnana, Tutankhana
+- Happy Halloweenana, Pandanana
 
 🔸 **1x TF2 KEY = 1,500 Each:**  
-- Christmaslightnana, Dream Banana, Expressionana, Milkywaynana, Vineyardnana
-- Bananasnowman, Furnana, Gamenana, Stickbugnana
+- Christmaslightnana, Dream Banana, Expressionana, Milkywaynana
+- Bananasnowman, Furnana, Gamenana, Stickbugnana, Vineyardnana
+- Arknana, Aztecnana, Cripplenana, Warningnana
 
 🔸 **1x TF2 KEY = 600 Each:**  
 - Camelnana, Cerberusnana, Christmascandynana, Golden Papercutnana  
