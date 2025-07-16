@@ -53,12 +53,14 @@
 - Camelnana, Cerberusnana, Christmascandynana, Golden Papercutnana  
 - Happysnownana, Juicenana, Papercutnana, Policenana  
 - Santabeltnana, Spartanana, sleepingnana, zigzagnana
+- Glitternana
 
 🔸 **1x TF2 KEY = 300 Each:**  
-- Knitnana
+- Knitnana, Evilclicknana, Alchemynana, Noisenana
+- Circusnana
 
 🔸 **1x TF2 KEY = 200 Each:**  
-- Circusnana
+- 
 
 🔸 **1x TF2 KEY = 60 Each:**  
 - New Year 2025 Banana, Christmas Treenana
