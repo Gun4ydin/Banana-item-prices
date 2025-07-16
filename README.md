@@ -57,7 +57,7 @@
 
 🔸 **1x TF2 KEY = 300 Each:**  
 - Knitnana, Evilclicknana, Alchemynana, Noisenana
-- Circusnana
+- Circusnana, Designernana
 
 🔸 **1x TF2 KEY = 200 Each:**  
 - 
