@@ -63,7 +63,12 @@
 - 
 
 🔸 **1x TF2 KEY = 60 Each:**  
-- New Year 2025 Banana, Christmas Treenana
+- New Year 2025 Banana, Christmas Treenana, Crimescenana
+- Frigattenana
+
+🔸 **1x TF2 KEY = 30 Each:**
+- Cashnana, Droidnana
+
 
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
