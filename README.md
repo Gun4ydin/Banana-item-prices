@@ -59,9 +59,6 @@
 - Knitnana, Evilclicknana, Alchemynana, Noisenana
 - Circusnana, Designernana
 
-🔸 **1x TF2 KEY = 200 Each:**  
-- 
-
 🔸 **1x TF2 KEY = 60 Each:**  
 - New Year 2025 Banana, Christmas Treenana, Crimescenana
 - Frigattenana
