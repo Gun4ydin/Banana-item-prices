@@ -11,7 +11,7 @@
 🔸 **1x TF2 KEY = 140,000 Each:**  
 - Banana
 
-🔸 **1x TF2 KEY = 15,000 Each:**  
+🔸 **1x TF2 KEY = 30,000 Each:**  
 - Angelnana, Banana Addict, Bananalock, Bananamobile, Beastnana  
 - Beenana, Bonsainana, Bubblewrapnana, Cakenana, Camonana  
 - Candlenana, Candycanenana, Claynana, Clicknana, Comicsnana  
