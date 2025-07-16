@@ -61,7 +61,7 @@
 
 🔸 **1x TF2 KEY = 60 Each:**  
 - New Year 2025 Banana, Christmas Treenana, Crimescenana
-- Frigattenana
+- Frigattenana, Electricnana
 
 🔸 **1x TF2 KEY = 30 Each:**
 - Cashnana, Droidnana
