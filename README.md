@@ -66,6 +66,8 @@
 🔸 **1x TF2 KEY = 30 Each:**
 - Cashnana, Droidnana
 
+🔸 **1x TF2 KEY = 5 Each:**
+- Sunglassnana, Aquariumnana, Moonglassnana
 
 💼 Items will be sent from my inventory  
 📌 You can mix different items to reach the value of 1 TF2 Key  
